@@ -1,3 +1,3 @@
 # Lions
 
-Lion are the best
+Lions are the best
